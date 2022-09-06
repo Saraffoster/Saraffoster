@@ -2,7 +2,7 @@
 - 👀 I’m interested in crypto and blockchain
 - 🌱 I’m currently learning javascrip
 - 💞️ I’m looking to collaborate on crypto and gaming projects
-- 📫 How to reach me twitter @SaraFos55220034
+- 📫 How to reach me twitter @SaraFos55220034 also on discord: sarafoster#8656
 
 
 <!---
