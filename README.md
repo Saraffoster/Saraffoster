@@ -5,6 +5,8 @@
 - 📫 How to reach me twitter @SaraFos55220034 also on discord: sarafoster#8656
 - i love flowers and want to make my life more colorful
 - will learn to code in next 2 eyars
+- lets change the world 
+- lets lose 20 lbs this eyar 
 
 
 <!---
